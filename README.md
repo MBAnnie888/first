@@ -1,0 +1,2 @@
+# first
+Próbálkozom, tehát megtanulom.
